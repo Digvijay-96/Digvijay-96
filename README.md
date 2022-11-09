@@ -1,4 +1,4 @@
-👋 Hi, I’m Dugvij@y!!!
+👋 Hi, I’m Digvij@y!!!
 
 👀 I’m interested in Music,travel,and very very important coding😁😉
 
